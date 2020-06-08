@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Powerlifting
+- TOOL
+- Gaming
+- My laptop :heart:
